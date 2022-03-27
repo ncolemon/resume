@@ -13,8 +13,6 @@ Highly accomplished, result driven project manager who has conveyed and conferre
 | Shop Drawings &nbsp;&nbsp;&nbsp;&nbsp;| Change Management &nbsp;&nbsp;&nbsp;&nbsp;| Materials Procurement
 
 
----
-
 #### PROFESSIONAL EXPERIENCE
 
 ##### GENERAL CONTRACTOR &nbsp;&nbsp;&nbsp;&nbsp; _Agape Development Company, Inc._ &nbsp;&nbsp;&nbsp;&nbsp; January 2000 - December 2007
