@@ -1,6 +1,7 @@
-### Norvell T. Colemon &nbsp;&nbsp;&nbsp;&nbsp; 770-896-6988 &nbsp;&nbsp;&nbsp;&nbsp; Email: Colemon61@gmail.com &nbsp;&nbsp;&nbsp;&nbsp; Milwaukee, Wisconsin
+### Norvell T. Colemon &nbsp;&nbsp;&nbsp;&nbsp; 
+770-896-6988 &nbsp;&nbsp;&nbsp;&nbsp; Email: Colemon61@gmail.com &nbsp;&nbsp;&nbsp;&nbsp; Milwaukee, Wisconsin
 
-#### <p align="center">GENERAL CONTRACTOR CONSTRUCTION PROJECT MANAGER</p>
+#### GENERAL CONTRACTOR CONSTRUCTION PROJECT MANAGER
 
 Highly accomplished, result driven project manager who has conveyed and conferred with supervisory personnel, owners, contractors, or design professionals to discuss and resolve matters, such as work procedures, complaints, or construction problems.  Planned, scheduled, and corrinated construction projects and activities to meet deadlines.  Prepared and submitted budget estimates, progress reports, and cost tracking reports.  Other duties included inspection and reviewing of projects to monitor compliance with building and safety codes, and other local, county, state and federal regulations.
 
@@ -14,7 +15,7 @@ Highly accomplished, result driven project manager who has conveyed and conferre
 
 ---
 
-#### <p align="center">PROFESSIONAL EXPERIENCE</p>
+#### PROFESSIONAL EXPERIENCE
 
 ##### GENERAL CONTRACTOR &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; _Agape Development Company, Inc._ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; January 2000 - December 2007
 
